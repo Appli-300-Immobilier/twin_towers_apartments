@@ -4,7 +4,7 @@
 - **Company Name:** Twin Towers Apartments
 - **Directory:** twin_towers_apartments
 - **Address/Contact:** 
-  - " Location de voitures � Immobilier � Location de maisons de vacances
+  - " Location de voitures é Immobilier é Location de maisons de vacances
   - 
   - yassa, Douala, Cameroon
   - 
